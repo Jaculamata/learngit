@@ -1,4 +1,4 @@
-hello world
-omg
+hello world goodbye
+omg oh shit!
 life is sufferring 
-but we have to suck it!
+but we don't have to suck it!
